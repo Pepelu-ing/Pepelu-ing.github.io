@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+这里是皮皮鲁同学的个人博客，一个喜欢电影/阅读/音乐的异想天开的普通人
